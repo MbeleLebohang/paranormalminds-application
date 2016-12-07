@@ -1,0 +1,1 @@
+# paranormalminds-application
